@@ -1,6 +1,6 @@
 - hi im @shevanswife
 - i liek cats
-- im learning little things probably idek
+- i know nothing about coding proibably
 - my name is danna
 - my discor is danna#5525
 

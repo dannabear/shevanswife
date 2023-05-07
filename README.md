@@ -1,5 +1,4 @@
-hai im danna 🐾
-mwa (ˉ﹃ˉ)
+hai im danna (ˉ﹃ˉ)
 
 <!---
 shevanswife/shevanswife is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

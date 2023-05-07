@@ -1,8 +1,5 @@
-- hi im @shevanswife
-- i liek cats
-- i know nothing about coding proibably
-- my name is danna
-- my discor is danna#5525
+hai im danna 🐾
+mwa (ˉ﹃ˉ)
 
 <!---
 shevanswife/shevanswife is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
